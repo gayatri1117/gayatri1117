@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @gayatri1117
-- 👀 I’m interested in writing
-- 🌱 I’m currently learning social media marketing
-- 💞️ I’m looking to collaborate on different suitable platforms
+- 👋 Hi, I’m Gayatri !
+- 👀 I’m interested in writing contents and stories.
+- 🌱 I’m currently learning social media marketing.
+- 💞️ I’m looking to collaborate on different suitable platforms.
 - 📫 How to reach me -
 - Email id - gayatrisarkar23@gmail.com
 
